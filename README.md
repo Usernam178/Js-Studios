@@ -1,2 +1,3 @@
-# Js-Studios
-Welcome to my studio
+# deez studios
+deez nuts
+get rickrolled ha
